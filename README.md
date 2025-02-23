@@ -1,3 +1,6 @@
+[Click here](https://static2949.github.io/votv-help/)
+
+
 # Voices of the Void simple guide
 Search tags:
 votv fall, votv falling down, voices of the void fall, voices of the void falling down
